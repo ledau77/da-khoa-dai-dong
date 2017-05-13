@@ -20,4 +20,4 @@ khi mắc viêm bartholin, chị em có biểu thị tiêu biểu là những m�
 
 Trong thời kỳ trị, chị em buộc phải tuân thủ theo các chỉ định của các chưng sỹ và ko buộc phải giao hợp dục tình, chú ý gìn giữ vệ sinh bộ phận sinh dục
 
-nếu như buộc phải Nhận định thêm thông báo về thuốc chữa viêm tuyến bartholin, bạn có thể truy hỏi cập: <a href="http://phongkhamdaidong.vn/viem-tuyen-bartholin-uong-thuoc-gi-de-chua-tri-61.html">http://phongkhamdaidong.vn/viem-tuyen-bartholin-uong-thuoc-gi-de-chua-tri-61.html</b> hoặc đến trực tiếp phòng khám Đại Đông các b.sĩ của phòng khám sẽ tư vấn giúp bạn.
+nếu như buộc phải Nhận định thêm thông báo về thuốc chữa viêm tuyến bartholin, bạn có thể truy hỏi cập: <a href="http://phongkhamdaidong.vn/viem-tuyen-bartholin-uong-thuoc-gi-de-chua-tri-61.html">http://phongkhamdaidong.vn/viem-tuyen-bartholin-uong-thuoc-gi-de-chua-tri-61.html</a> hoặc đến trực tiếp phòng khám Đại Đông các b.sĩ của phòng khám sẽ tư vấn giúp bạn.
