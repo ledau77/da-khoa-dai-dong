@@ -1,4 +1,4 @@
-Thuốc chữa viêm tuyến Bartholin
+<b>Thuốc chữa viêm tuyến Bartholin</b>
 
 Bartholin là tuyến mang tác dụng tiết chất nhờn của cậu bé nữ, tuyến này vô cùng dễ bị viêm.<i> Viêm tuyến bartholin<i> là một trong những căn bệnh phụ khoa thường thấy ở nữ giới, ảnh hưởng của căn bệnh hơi hiểm nguy đối có sức khỏe chủa chị em. Băn khoăn của đa số chị em khi bị bị căn bệnh là cách thức điều trị căn bệnh mà rõ ràng là <a rel="dofollow" href="http://phongkhamdaidong.vn/viem-tuyen-bartholin-uong-thuoc-gi-de-chua-tri-61.html"><b>viêm tuyến bartholin uống thuốc gì</b></a> để điều trị. giải đáp những băn khoăn của chị em về vấn đề này, Bên dưới những bác bỏ sỹ Phòng khám nam khoa Sản phụ khoa – Nam khoa chất lượng cao Tp.Hồ Chí Minh sẽ cung cấp các kiến thức căn bản nhất về thuốc điều trị viêm tuyến Bartholin.
 
